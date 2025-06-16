@@ -20,4 +20,4 @@ We welcome contributions. If you have a unique recipe or a better method, fork t
 ## About VedaOils
 
 **VedaOils** offers high-quality essential oils, fragrance oils, soap bases, and other natural ingredients for DIY, craft, and commercial use.  
-Visit our website to explore our complete product range: [https://www.vedaoils.co.uk](https://www.vedaoils.co.uk)
+Visit our website to explore our complete product range: [vedaoils UK](https://www.vedaoils.co.uk)
